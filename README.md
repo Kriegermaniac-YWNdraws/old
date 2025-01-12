@@ -43,3 +43,5 @@
 <p align="center">
   <img src="https://github.com/YWNdraws/YWNdraws/blob/main/dhbfgxf-e860eae1-dcc2-4afa-b484-f0fc489f52a0.gif">
 </p>
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=YWNdraws)
