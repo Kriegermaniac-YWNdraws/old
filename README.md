@@ -1,6 +1,6 @@
 
 # <p align="center"> 〟Just to make this official : ... Bang ! ... You dead . 〞 </p>
-### <p align="center"> ![tumblr_9679fa2b9fd31bdc588acb2d8aad2618_9a5f8573_250](https://github.com/user-attachments/assets/82359773-eada-440b-8018-d39acc1ae3e8) MURDERFACE LIVES MATTER !!!! !![tumblr_9679fa2b9fd31bdc588acb2d8aad2618_9a5f8573_250](https://github.com/user-attachments/assets/82359773-eada-440b-8018-d39acc1ae3e8)</p>
+### <p align="center"> ![tumblr_9679fa2b9fd31bdc588acb2d8aad2618_9a5f8573_250](https://github.com/user-attachments/assets/82359773-eada-440b-8018-d39acc1ae3e8) MURDERFACE LIVES MATTER !!!! ![tumblr_9679fa2b9fd31bdc588acb2d8aad2618_9a5f8573_250](https://github.com/user-attachments/assets/82359773-eada-440b-8018-d39acc1ae3e8)</p>
 #### <p align="center">  <img width="55" height="100" src="https://github.com/user-attachments/assets/7fda2c7b-2a6c-484e-b309-08d3b53fe619"> </p>
 
  </p>
