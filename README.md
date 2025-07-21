@@ -1,13 +1,17 @@
 
 # <p align="center"> 〟Just to make this official : ... Bang ! ... You dead . 〞 </p>
+### <p align="center"> ![tumblr_9679fa2b9fd31bdc588acb2d8aad2618_9a5f8573_250](https://github.com/user-attachments/assets/82359773-eada-440b-8018-d39acc1ae3e8) MURDERFACE LIVES MATTER !!!! !![tumblr_9679fa2b9fd31bdc588acb2d8aad2618_9a5f8573_250](https://github.com/user-attachments/assets/82359773-eada-440b-8018-d39acc1ae3e8)</p>
+#### <p align="center">  <img width="55" height="100" src="https://github.com/user-attachments/assets/7fda2c7b-2a6c-484e-b309-08d3b53fe619"> </p>
+
+ </p>
 <p align="center"> 19.8. | 17 | He/Him </p>
 <p align="center"> PLEASE DON'T COPY MY SKINS ! INSPO IS FINE , BUT CREDIT !! </p>
 <sub><p align="center"> Read rentry 4 more </p></sub>
-
 <p align="center">
   <img width="400" height="400" src="https://github.com/YWNdraws/YWNdraws/blob/main/ilovemywifedudeandduke2.png">
 </p>
 <p align="center"> 〟Going postal .  〞 〟Looks like it's time for me to go postal ! 〞 </p> 
+
 
 
 
