@@ -4,7 +4,7 @@
 #### <p align="center">  <img width="55" height="100" src="https://github.com/user-attachments/assets/7fda2c7b-2a6c-484e-b309-08d3b53fe619"> </p>
 
  </p>
-<p align="center"> 19.8. | 17 | He/Him </p>
+<p align="center"> 19.8. | 18 | He/Him </p>
 <p align="center"> PLEASE DON'T COPY MY SKINS ! INSPO IS FINE , BUT CREDIT !! </p>
 <sub><p align="center"> Read rentry 4 more </p></sub>
 <p align="center">
