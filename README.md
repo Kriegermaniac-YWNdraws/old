@@ -3,6 +3,12 @@
 ### <p align="center"> ![tumblr_9679fa2b9fd31bdc588acb2d8aad2618_9a5f8573_250](https://github.com/user-attachments/assets/82359773-eada-440b-8018-d39acc1ae3e8) MURDERFACE LIVES MATTER !!!! ![tumblr_9679fa2b9fd31bdc588acb2d8aad2618_9a5f8573_250](https://github.com/user-attachments/assets/82359773-eada-440b-8018-d39acc1ae3e8)</p>
 #### <p align="center">  <img width="55" height="100" src="https://github.com/user-attachments/assets/7fda2c7b-2a6c-484e-b309-08d3b53fe619"> </p>
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=u9b3bvn777s2w9fk7edhe5gvg&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=u9b3bvn777s2w9fk7edhe5gvg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=d02d1b&bar_color_cover=true">
+  </a>
+</p>
+
  </p>
 <p align="center"> 19.8. | 18 | He/Him </p>
 <p align="center"> PLEASE DON'T COPY MY SKINS ! INSPO IS FINE , BUT CREDIT !! </p>
